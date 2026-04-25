@@ -1,4 +1,4 @@
-
+Experience plants vs brainrots like never before with plants vs brainrots Scripts secret, the #1 Script. Includes private server access and aimbot
 
 
 
